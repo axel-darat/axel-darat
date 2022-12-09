@@ -1,1 +1,1 @@
-¡Sientete libre de usar mi código! 
+My code is for free use!
