@@ -1,1 +1,1 @@
-My code is for free use!
+My code is for free to use!
