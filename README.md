@@ -1,1 +1,1 @@
-Se you later, Space Cowboy!
+Per aspera ad astra!
